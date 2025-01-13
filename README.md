@@ -1,1 +1,1 @@
-# Personel Study
+# Personal Study
